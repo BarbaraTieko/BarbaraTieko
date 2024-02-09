@@ -1,5 +1,6 @@
 ### Hi there 👋
 
+- 🔭 Currently teaching at Insper programming courses.
 - 📫 How to reach me: barbarata@insper.edu.br / barbara.tieko@gmail.com
 - ⚡ Hobbies: I love to read Fantasy books 📚🧚‍♀️, handcrafts 🧵, play video games 🎮 and board games 🎲.
 
